@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Taufik Hidayat**.\
+Perkenalkan nama saya **Taufik Hidayat**
 
 
 
